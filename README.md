@@ -3,7 +3,7 @@
 Looking for **free Udemy courses** that offer **certificates of completion**? 🚀 **UdemyFreeDaily** provides **exclusive free course coupons**, updated **every hour**—so you NEVER miss out!  
 
 ## ✅ Why Follow UdemyFreeDaily?  
-💡 **Daily updated Udemy free course coupons**  
+💡 **Daily updated Udemy free course coupons with Direct Links**  
 🎓 **Earn free certificates of completion**—boost your resume!  
 💰 **No cost, no hassle—just free learning**  
 📚 **Courses in coding, business, design & more**  
